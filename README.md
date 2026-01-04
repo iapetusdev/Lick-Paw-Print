@@ -1,1 +1,1 @@
-Confirmation that I (wouldn't use names for security) submitted this program in an application to Lick Wilmerding High School in SF for the application year of the class going into 2026.
+Confirmation that I (wouldn't use names for security) submitted this program in an multiple San Francisco High Schools for the application year of the class going into 2026.
